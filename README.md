@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/7892f316-260d-46f6-b400-0711781d6dfd)
+<img width="1911" height="935" alt="Image" src="https://github.com/user-attachments/assets/8c7da14b-9211-4d64-850f-a0fb60ca82c6" />
 
 ᴋᴋᴇᴜᴛᴇᴏᴘꜱɴᴇᴜɴ ɪ ɴᴏʀᴀᴇ .
 --------------------------
